@@ -1,6 +1,6 @@
 # Board Regulations
 
-The following document is a non-binding description of regulations made by the aboard.
+The following document is a non-binding description of regulations made by the board.
 
 ## Rules of Order and Procedure
 
